@@ -6,4 +6,4 @@
 
 🖱 Informatico y amante de la tecnologia desde pequeño.
 
-🖱 Gamer en los ratos libres.
+🎮 Gamer en los ratos libres.
