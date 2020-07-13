@@ -4,4 +4,6 @@
 
 🖥 Ingeniero en sistemas computacionales.
 
-_____________________________________________________________________________
+🖱 Informatico y amante de la tecnologia desde pequeño.
+
+🖱 Gamer en los ratos libres.
