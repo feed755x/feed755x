@@ -1,7 +1,5 @@
 ### Hola 👋
 
-👨‍💻 Federico Sanchez Jimenez, 22 años, Mexico.
-
-🖥 Ingeniero en sistemas computacionales.
+👨‍💻 Federico Sanchez Jimenez, 25 años, Mexico.
 
 🖱 Informatico y amante de la tecnologia.
